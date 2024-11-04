@@ -1,2 +1,2 @@
 # omg
-fgrfgfgfg
+opisanie
